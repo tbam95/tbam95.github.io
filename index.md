@@ -1,2 +1,2 @@
-## Welcome to Norther Acres Property Management
+## Welcome to Northern Acres Property Management
 
